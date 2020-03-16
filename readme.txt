@@ -1,0 +1,2 @@
+EDSGER WYBE DIJKSTRA 
+Netherlands – 1972
